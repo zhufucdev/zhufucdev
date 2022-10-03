@@ -2,7 +2,7 @@
 
 ## Hi there! 👏
 
-👨‍🎓 I'm zhufucdev, a NUIST student majoring in Digital Information.
+👨‍🎓 I'm zhufucdev, a NUIST student majoring in Electronics Information.
 
 I write dumb programs mainly out of temporal passion.
 
