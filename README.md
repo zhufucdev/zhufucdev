@@ -1,8 +1,8 @@
-# Greetings from an Idiot Coder
+# Greetings from a Dumbass
 
 ## Hi there! 👏
 
-👨‍🎓 I'm zhufucdev, a NUIST student majoring in Digital Information.
+🤔 I'm zhufucdev, a NUIST student majoring in CS (not counter strike).
 
 I write dumb programs mainly out of temporal passion.
 
