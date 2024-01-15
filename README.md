@@ -1,21 +1,21 @@
-# Greetings from a Dumbass
+# Greetings from a pro
 
 ## Hi there! 👏
 
-🤔 I'm zhufucdev, a NUIST student majoring in CS (not counter strike).
+🤔 I'm Steve Reed, a pro student, currently learning computer science.
 
-I write dumb programs mainly out of temporal passion.
-
-Btw, I make videos in Mandarin mixed with poor English.
+I do not like tofu.
 
 ## Persona
 
-A fake personality of mine can be revealed on [YouTube](https://www.youtube.com/channel/UCuopPG2iD3Xt89vK2lhtfwQ) 
-and [BiliBili](https://space.bilibili.com/195228232), who speaks quite a lot nonsense 
-and makes dumb joke about technology.
+You may find me interesting, and you are 100% correct.
+I know many things, and judge even more things sharply (sometimes harshly),
+but that doesn't mean I am a mean person. I am very kind to people.
 
-Wondering who would love such a YouTuber.
+If you are interested in computer science, humanity, economy, design, music,
+or anything you get, you can talk to me, but come up with a clear topic so that
+I don't waste my time. My contact info is on the github profile.
 
-## What I use GitHub for
+I write good program. I mainly do Android, web, and desktop sometimes.
+If you want me to write programs for you, pay me decent and we can talk.
 
-~~I make friends on it~~
