@@ -19,6 +19,8 @@ i see vibe coders after all it's easier to not think
 but whenever it's a dirty job i dont care im down to whatever
 but hopefully no many such instances i do stuff because i love to
 and want to solve real problems making my life a little bit better
+i am also glad to share what i made if it ever comes handy to others
+i would be happy too
 
 my code editor of choice is neovim and my prime computer is an apple silicon
 macbook i use nix darwin to configure it and a secondary pc
