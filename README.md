@@ -27,9 +27,9 @@ is running nix os
 i do not like labeling people especially myself but for a
 quick stereotype i am nonbinary and use any pronounce (for now at least,
 i am down to change whenever and whatever) i do not exactly know my
-sexuality i think it's on the asexual spectrum? it's ok to not know
+sexuality i think it's on the asexual spectrum? it's ok to not know period
 i am a lgbtqia+ scholar though and i do not like people saying dumb
-and disrespective things please be nice and normal
+and disrespectful things please be nice and normal
 
 i love character driven stories, enjoy rpgs and novel of such
 we should embrace the complexity right?
