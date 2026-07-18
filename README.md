@@ -43,10 +43,10 @@ i cannot care less about social media and i hate elon musk
 i hate algorithms that prioritize rage and degenerate humanity
 those evil tech bros printing cash out of it should stop fr
 
-i care about privacy and it's weird that ppl are installing automatic
-spyware on their computers nowadays i do not trust the chain however
-good and kind and reputable the actor running it is i believe the
-tech should be built unexploitable in principle community softwares
+i care about privacy and it's weird that ppl are installing automated
+spyware that give arbitrary access to openai and anthropic to their computers nowadays
+i do not trust the chain however good and kind and reputable the actor running
+it is i believe the tech should be built unexploitable in principle community softwares
 are often better but in the end it can always be a person of good
 intentions but bad executions and / or abilities
 
