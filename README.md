@@ -33,10 +33,10 @@ sexuality i think it's on the asexual spectrum? it's ok to not know period
 i am a lgbtqia+ scholar though and i do not like people saying dumb
 and disrespectful things please be nice and normal
 
-i love character driven stories, enjoy rpgs and novel of such
+i love character driven stories, enjoy rpgs and novels of such
 we should embrace the complexity right?
 
-i kinda enjoy video editing and is sim-proficient in davinci capable of
+i kinda enjoy video editing and is semi-proficient in davinci capable of
 color grading and motion effects, but writing and planning have always been too
 much for me so i upload edits of other youtubers' on my yt channel if
 a funny idea hits me
