@@ -22,15 +22,14 @@ and want to solve real problems making my life a little bit better
 i am also glad to share what i made if it ever comes handy to others
 i would be happy too
 
-my code editor of choice is neovim and my prime computer is an apple silicon
-macbook i use nix darwin to configure it and a secondary pc
+my code editor of choice is neovim and my prime computer is a mac mini
+i use nix darwin to configure it and a secondary pc
 is running nix os
 
 i do not like labeling people especially myself but for a
-quick stereotype i am nonbinary and use any pronounce (for now at least,
-i am down to change whenever and whatever) i do not exactly know my
-sexuality i think it's on the asexual spectrum? it's ok to not know period
-i am a lgbtqia+ scholar though and i do not like people saying dumb
+quick stereotype i am transfem nonbinary and use they them she her pronounces
+(for now i am down to change whenever and whatever)
+i am an lgbtqia+ scholar though and i do not like people saying dumb
 and disrespectful things please be nice and normal
 
 i love character driven stories, enjoy rpgs and novels of such
